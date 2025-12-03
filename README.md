@@ -1,1 +1,1 @@
-This is my virus repository with the viruses i created. This repository is only for educational purposes! Dont run in the pc of someone (you can if its a vm) dont use this as a joke!
+This is my virus repository with the viruses i created. This repository is only for educational purposes! Dont run in the pc of someone (you can if its a vm) dont use this as a joke! Also the Ancient.zip its  𒈔 𒀭 𒆠 𒇽 𒈜 𒎗 𒎩 𒎰 𒍸 𒍯 𒍾 𒌑 𒌋 𒌁 �.exe
